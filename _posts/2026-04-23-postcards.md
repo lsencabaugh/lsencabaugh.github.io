@@ -8,7 +8,8 @@ At the end of 2025 I started writing postcards. It begun out of a desire to conn
 I've also enjoyed the hunt of finding new and exciting cards, ideally made in areas I've visited or have been to previously by local artists. I'm a sucker for local niche references and culture, so I tend to gravitate towards those. 
 
 ![Pending Postcards](/assets/postcards.jpg)
+*Pending Postcards waiting to be sent*
 
 Even navigating the postal system, which appears to be closer and closer to collapsing in it's current form, was a fun challenge. In a fast paced world, it seems postal staff are very friendly and are more chatty than the average front line worker. Perhaps this is due to them actually enjoying their jobs and being compensated, but regardless, they seem to always want to engage with me when I have any in person dealings and it really has left a positive impression on me.
 
-I can't see this a hobby I will lose anytime soon, so long as I have friends who want to send me cards! If anyone who reads this wants a postcard, feel free to email me your address and I would happily do so.
+I can't see this a hobby I will lose anytime soon, so long as I have friends who want to receive my cards! If anyone who reads this wants a postcard, feel free to email me your address and I would happily do so.
